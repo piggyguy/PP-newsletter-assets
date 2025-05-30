@@ -1,0 +1,1 @@
+# PP-newsletter-assets
